@@ -1,1 +1,0 @@
-# KOMPAX-JATIM-peta-intraktif
